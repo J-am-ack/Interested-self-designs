@@ -1,2 +1,2 @@
 # Interested-self-designs
-insterests and some creative ideas
+interests and some creative ideas
